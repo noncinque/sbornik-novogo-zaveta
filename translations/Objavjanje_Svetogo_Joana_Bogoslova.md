@@ -12,7 +12,7 @@
 10 Ja jesm byl v duhu v denj voskrěsny, i slyšal vzadu sebe zvučny glas, kako by cěvčny ( ~ trubny), ktory rěkl: Ja jesm Alfa i Omega, Prvy i Poslědnji;
 11 to, čto ty vidiš, napiši v knigu i šlji crkvam, ktore nahodet se v Asiji: v Efes, i v Smirnu, i v Pergam, i v Fiatiru, i v Sardis, i v Filadelfiju, i v Laodikiju.
 12 Ja jesm obratil se, da by uviděti, čij jest glas, govorivši so mnoju; i obrativši se, uviděl sedm zlatyh světilok
-13 i, posrěd sedmi světilok, podobnogo Synu Člověčskomu, oblěčenogo v **podir** i po **persjam** **opasanogo** zlatym pasom:
+13 i, posrěd sedmi světilok, podobnogo Synu Člověčskomu, oblěčenogo v podir i po prsam ( ~ grudam) opasanogo zlatym pasom:
 14 glava Jego i vlasy sut běle, kako běla vala, kako sněg; i oči Jego, kako plamenj ognjeny;
 15 i nogy Jego sut podobne **halkolivanu**, kako razžarjene v pěči, i glas Jego, kako šum vod mnogyh.
 16 On držal v desnici Svojej sedm zvězd, i iz ust Jego izhodil ostry s oboh stran meč; i lice Jego, kako solnce, blěstějuče v silě svojej.
@@ -23,3 +23,12 @@
 
 ## Razděl 2
 
+1 Angelu Efesskoj crkvi napiši: onako rěče Držači sedm zvězd v desnici Svojej, Hodeči posrěd sedmi zlatyh svetilok:
+2 věm děla tvoje, i trud tvoj, i trpělivost tvoju, i to, že ty ne možeš trpěti zlyh i izkušal tyh, ktori zovut se Apostolami, a oni ne sut takymi, i našel, že oni sut lžecami;
+3 ty jesi imaješ trpělivost, i za ime Moje mnogo trudil se, i ne umoril se.
+4 Ale imaju protiv tebe, že jesi prvu ljubov svoju ostavil.
+5 Takto vozpomni, odkud jesi padl, i pokajaj se, i tvori prve děla; a jestli ne hčeš, skoro budu prijdti k tobě i budu prěměstiti svetilku tvoju od města jego, jestli ne budeš pokajati se.
+
+
+
+29
